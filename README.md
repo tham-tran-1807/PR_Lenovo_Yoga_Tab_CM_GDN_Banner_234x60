@@ -1,0 +1,2 @@
+# PR_Lenovo_Yoga_Tab_CM_GDN_Banner_234x60
+PR_Lenovo_Yoga_Tab_CM_GDN_Banner_234x60
